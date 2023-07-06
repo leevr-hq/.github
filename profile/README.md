@@ -27,7 +27,7 @@ At Leev, we have a range of career opportunities available, including software d
 
 If you have any questions, feedback, or inquiries, please feel free to reach out to our team:
 
-- Email: info@leevapp.com
+- Email: contact@leevapp.com
 - Website: [https://www.leevapp.com](https://www.leevapp.com)
 
 Connect with us on social media for the latest updates and news:
